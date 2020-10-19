@@ -19,4 +19,4 @@ Why are some people quick to learn while others aren’t. In some case, few peop
 
 
 ## Question 5
-With the exception of the technique recommended for overcoming procrastination like the POMODORO technique, what is your own/personal way of overcoming procrastination and how can we leverage it while learning how to overcome procrastination?
+With the exception of the technique recommended for  overcoming procrastination like the POMODORO technique, what is your own/personal way of overcoming procrastination and how can we leverage it while learning how to overcome procrastination?
